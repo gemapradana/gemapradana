@@ -20,7 +20,7 @@
    <div align="center"> 𝒊 never felt the same way ever again.&nbsp;&nbsp;&nbsp;ᛝ&nbsp;&nbsp;&nbsp;&nbsp;──&nbsp;&nbsp;🎹 </div>
    <div align="center">
 
-   [rentry](https://rentry.co/crawlundermyskin) [strawpage](https://gemapradana.straw.page) [follow me](https://github.com/cataclysmtick)
+   [rentry](https://rentry.co/crawlundermyskin) [strawpage](https://gemapradana.straw.page) [follow me](https://github.com/cataclysmtick) [sign ata](https://cruuuxxx.atabook.org/)
   </div>
 
-<!-- dont do what i think you're doing, okay??????? all credit go to ME, ME! AND I KNOW, YOU'LL BE STEALING THIS, YOU YETI! -->
+<!-- I forth to know what you are doing? -->
