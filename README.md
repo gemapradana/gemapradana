@@ -20,7 +20,7 @@
    <div align="center"> 𝒊 never felt the same way ever again.&nbsp;&nbsp;&nbsp;ᛝ&nbsp;&nbsp;&nbsp;&nbsp;──&nbsp;&nbsp;🎹 </div>
    <div align="center">
 
-   [rentry](https://rentry.co/persahabatan) [follow me](https://github.com/cataclysmtick) [sign ata](https://cruuuxxx.atabook.org/)
+   rentry is in working. [follow me](https://github.com/cataclysmtick) [sign ata](https://cruuuxxx.atabook.org/)
   </div>
 
 <!-- What must you be DOING?! By the way -- my strawpage is in works. -->
