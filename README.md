@@ -14,7 +14,7 @@
 
 <div align="center">
  
- [rentry](https://rentry.co/427432) [atabook](https://stanleyparable.atabook.org/) [follow me](https://github.com/failedcrucifixion)
+ [rentry](https://rentry.co/427432) [atabook](https://stanleyparable.atabook.org/) [follow me](https://github.com/MISS-N-DIE)
 
 
 <!-- stamps are made by me including image. if i stole a way of someones repository, do tell me -->
