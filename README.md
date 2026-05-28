@@ -14,7 +14,7 @@
 
 <div align="center">
  
- [rentry](https://rentry.co/427432) [新book](https://stanleyparable.atabook.org/) [follow me](https://github.com/tinggal-meninggal)
+ [rentry](https://rentry.co/427432) [新](https://stanleyparable.atabook.org/) [follow me](https://github.com/tinggal-meninggal)
 
 
 <!-- stamps are made by me including image. if i stole a way of someones repository, do tell me -->
