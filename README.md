@@ -1,4 +1,4 @@
-<div align="center"><img src="https://media.discordapp.net/attachments/1491277406244179999/1523292449483653251/Screenshot_547.png?ex=6a4b9425&is=6a4a42a5&hm=08de3caf2a5c61658f53a2c9815d2cbf86b55f3a2ea0f28b74064d6425db5fee&=&format=webp&quality=lossless"></div>
+
 <DIV align="center">
  
  [♡](https://www.youtube.com/watch?v=zr0EVcy5Hk0)&emsp;  You only like <ins>h</ins>im, cause he's sexually <ins>appealing</ins></div>
