@@ -6,7 +6,7 @@
  <div align="center"> 
    
  
- ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=620404&label=feelings) </div> 
+ ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=620404&label=Andai+AKu+bEsAr+nAntI+++++++++++++) </div> 
     
 <Div align="center">
  
