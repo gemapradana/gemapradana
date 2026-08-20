@@ -6,7 +6,7 @@
  <div align="center"> 
    
  
-[![Hits](https://hits.sh/github.com/hiopes.svg?label=ninja%20cat&extraCount=-4847&color=ecec3b&labelColor=3a3a3a&logo=furrynetwork)](https://hits.sh/github.com/hiopes/) </div> 
+[![Hits](https://hits.sh/github.com/hiopes.svg?label=ninja%20cat&extraCount=-4847&color=ecec3b&labelColor=251e15&logo=furrynetwork)](https://hits.sh/github.com/hiopes/) </div> 
     
 <Div align="center">
  
