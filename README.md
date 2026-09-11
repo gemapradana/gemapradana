@@ -19,7 +19,7 @@
  <div align="center"><img src="https://media.discordapp.net/attachments/1491277763548549161/1544619685776072734/Screenshot_783.png?ex=6a992aae&is=6a97d92e&hm=7c73305093a75f64f28d14545177629625110a188f7dd619d8e473bd410bd65a&=&format=webp&quality=lossless&width=1024&height=576" width="230">
 
 
- [新](https://stanleyparable.atabook.org/) [<sub>follow me</sub>](https://github.com/tinggal-meninggal) [<sub>rentry<sub>](https://rentry.co/boywhenicatchyou) [<sub>carrd</sub>](https://tinggalmeninggal.carrd.co) [<sub>files<sub>](https://pronouns.cc/@gemaprad) </div> 
+ [新](https://stanleyparable.atabook.org/) [<sub>follow me</sub>](https://github.com/tinggal-meninggal) [<sub>rentry<sub>](https://rentry.co/-gemapradana) [<sub>carrd</sub>](https://tinggalmeninggal.carrd.co) [<sub>files<sub>](https://pronouns.cc/@gemaprad) </div> 
 
 
 
