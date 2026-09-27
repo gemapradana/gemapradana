@@ -19,7 +19,16 @@
  <div align="center"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSBMI9xhCuNMklg14LmTpgEk_HPQp0cx5AEPIR78hVouA&s=10" width="230">
 
 
- [新](https://stanleyparable.atabook.org/) [<sub>follow me</sub>](https://github.com/tinggal-meninggal) [<sub>carrd</sub>](https://tinggalmeninggal.carrd.co) [<sub>files<sub>](https://pronouns.cc/@gemaprad) </div> 
+ [新](https://stanleyparable.atabook.org/) [<sub>follow me</sub>](https://github.com/tinggal-meninggal) [<sub>carrd</sub>](https://tinggalmeninggal.carrd.co) [<sub>files<sub>](https://pronouns.cc/@gemaprad) 
+ </div> 
+
+ <div align="center"><details>
+<summary></summary>
+crucible or crux <br><sub>call me gema <ins>if i don't know u</ins> as a friend or an acquaintance</sub>
+    <br><br> i portray myself as narrator, gema pradana, <br>stan marsh, and boris.b but i am not a fictkin or a yume
+     <br> in the afteralls i don't mind <br>if you own these characters as "yours" 
+     <br> i block freely because i don't have an exact list anymore
+</details></div>
 
 
 
