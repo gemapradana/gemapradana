@@ -19,7 +19,7 @@
  <div align="center"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSBMI9xhCuNMklg14LmTpgEk_HPQp0cx5AEPIR78hVouA&s=10" width="230">
 
 
- [新](https://stanleyparable.atabook.org/) [<sub>follow me</sub>](https://github.com/tinggal-meninggal) [<sub>carrd</sub>](https://tinggalmeninggal.carrd.co) [<sub>files<sub>](https://pronouns.cc/@gemaprad) 
+ [新](https://stanleyparable.atabook.org/) [<sub>follow me</sub>](https://github.com/tinggal-meninggal) [<sub>carrd</sub>](https://tinggalmeninggal.carrd.co)
  </div> 
 
  <div align="center"><details>
