@@ -28,6 +28,9 @@ crucible or crux <br><sub>call me gema <ins>if i don't know u</ins> as a friend 
     <br><br> i portray myself as narrator, gema pradana, <br>stan marsh, and boris.b but i am not a fictkin or a yume
      <br> in the afteralls i don't mind <br>if you own these characters as "yours" 
      <br> i block freely because i don't have an exact list anymore
+     <br> 
+     
+[<sub>me<sub>](https://spacehey.com/gemapradana)
 </details></div>
 
 
