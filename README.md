@@ -30,7 +30,7 @@ crucible or crux <br><sub>call me gema <ins>if i don't know u</ins> as a friend 
      <br> i block freely because i don't have an exact list anymore
      <br> 
      
-[<sub>me<sub>](https://spacehey.com/gemapradana) [<sub>hachi<sub>](https://media.discordapp.net/attachments/1497545740053123103/1564888435796344842/0.png?ex=6ae2e76d&is=6ae195ed&hm=93065d85c86acd42f44eb2a4bf0577d5d26c041949847996d005346f0fdb62eb&=&format=webp&quality=lossless&width=350&height=230)
+[<sub>me<sub>](https://spacehey.com/gemapradana) [<sub>hachi<sub>](https://mail.google.com/mail/u/0?ui=2&ik=84e4ec8daa&attid=0.1&permmsgid=msg-f:1880273463635737612&th=1a1812c0c899fc0c&view=fimg&fur=ip&permmsgid=msg-f:1880273463635737612&sz=s0-l75-ft&attbid=ANGjdJ_c9Sh9roh6MgMtDBEA8lbOXcfFcsS9zhfJ_9V56JnXRt3fQ7L_b1clm8dHAbcqNYOUF3eTT15o4LHKq9vidyH_tYLU5UxHU31ruiMnlAqgn4jSBdClarJXbCQ&disp=emb&realattid=ii_1a1812b99534ac2a5f61&zw=)
 </details></div>
 
 
