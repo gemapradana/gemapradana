@@ -16,7 +16,7 @@
 [![Hits](https://hits.sh/github.com/hiopes.svg?label=ninja%20cat&extraCount=-4847&color=ecec3b&labelColor=251e15&logo=furrynetwork)](https://hits.sh/github.com/hiopes/) </div> 
 
  
- <div align="center"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSBMI9xhCuNMklg14LmTpgEk_HPQp0cx5AEPIR78hVouA&s=10" width="230">
+ <div align="center"><img src="https://klasika.kompas.id/wp-content/uploads/2025/08/STILL-3.webp" width="230">
 
 
  [新](https://stanleyparable.atabook.org/) [<sub>follow me</sub>](https://github.com/tinggal-meninggal) [<sub>carrd</sub>](https://tinggalmeninggal.carrd.co)
