@@ -25,10 +25,9 @@
  <div align="center"><details>
 <summary></summary>
 crucible or crux <br><sub>call me gema <ins>if i don't know u</ins> as a friend or an acquaintance</sub>
-    <br><br> i portray myself as narrator, gema pradana, <br>stan marsh, and boris.b but i am not a fictkin or a yume
-     <br> in the afteralls i don't mind <br>if you own these characters as "yours" 
-     <br> i block freely because i don't have an exact list anymore
-     <br> 
+     <br><br> my name is gema pradana<br>and i see myself as gema but not a fict
+<br> i block freely
+     <br><br> love fourth-wall breaking movies and books
      
 [<sub>me<sub>](https://spacehey.com/gemapradana) [<sub>hachi<sub>](https://mail.google.com/mail/u/0?ui=2&ik=84e4ec8daa&attid=0.1&permmsgid=msg-f:1880273463635737612&th=1a1812c0c899fc0c&view=fimg&fur=ip&permmsgid=msg-f:1880273463635737612&sz=s0-l75-ft&attbid=ANGjdJ_c9Sh9roh6MgMtDBEA8lbOXcfFcsS9zhfJ_9V56JnXRt3fQ7L_b1clm8dHAbcqNYOUF3eTT15o4LHKq9vidyH_tYLU5UxHU31ruiMnlAqgn4jSBdClarJXbCQ&disp=emb&realattid=ii_1a1812b99534ac2a5f61&zw=)
 </details></div>
