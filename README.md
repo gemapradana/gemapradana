@@ -27,7 +27,9 @@
 crucible or crux <br><sub>call me gema <ins>if i don't know u</ins> as a friend or an acquaintance</sub>
      <br><br> my name is gema pradana<br>and i see myself as gema but not a fict
 <br> i block freely
-     <br><br> love fourth-wall breaking movies and books
+     <br><br> love fourth-wall breaking movies and books<br><br>
+     <img width="427" alt="image" src="https://github.com/user-attachments/assets/36147064-8fd5-45b0-96a5-81fb7d5b570a"  align="center"/><br><br>
+
      
 [<sub>me<sub>](https://spacehey.com/gemapradana) [<sub>hachi<sub>](https://mail.google.com/mail/u/0?ui=2&ik=84e4ec8daa&attid=0.1&permmsgid=msg-f:1880273463635737612&th=1a1812c0c899fc0c&view=fimg&fur=ip&permmsgid=msg-f:1880273463635737612&sz=s0-l75-ft&attbid=ANGjdJ_c9Sh9roh6MgMtDBEA8lbOXcfFcsS9zhfJ_9V56JnXRt3fQ7L_b1clm8dHAbcqNYOUF3eTT15o4LHKq9vidyH_tYLU5UxHU31ruiMnlAqgn4jSBdClarJXbCQ&disp=emb&realattid=ii_1a1812b99534ac2a5f61&zw=)
 </details></div>
