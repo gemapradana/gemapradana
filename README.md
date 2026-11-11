@@ -8,7 +8,7 @@
  <DIV align="center">
 
 
- [♡](https://www.youtube.com/watch?v=R5l1wOl7lqg)&emsp;  ૮˶ ◞  ‸  ◟ ˶マ </div>
+ [♡](https://www.youtube.com/watch?v=R5l1wOl7lqg)&emsp;  Why bother? It's gonna <ins>hurt me</ins>!
  
  <div align="center"> 
    
@@ -26,7 +26,9 @@
 <summary></summary>
 crucible or crux <br><sub>call me gema <ins>if i don't know u</ins> as a friend or an acquaintance</sub>
      <br><br> my name is gema pradana<br>and i see myself as gema but not a fict
-<br> i block freely
+<br> i block freely<br>
+    <br> i like to intervene in topics or conversation.<br> never debates cause i'm not very fluent at english.<br><br> we can talk anytime<br> but i prefer short talk unless i'm in the mood. <br>
+     i am a very nice person <br>but i am sardonic or sarcastic and may come off rude. <br><sub>sometimes hyperbolic sarcasm</sub>
      <br><br> love fourth-wall breaking movies and books<br><br>
      <img width="427" alt="image" src="https://github.com/user-attachments/assets/36147064-8fd5-45b0-96a5-81fb7d5b570a"  align="center"/><br><br>
 
