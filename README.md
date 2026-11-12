@@ -19,7 +19,7 @@
  <div align="center"><img src="https://klasika.kompas.id/wp-content/uploads/2025/08/STILL-3.webp" width="230">
 
 
- [新](https://stanleyparable.atabook.org/) [<sub>follow me</sub>](https://github.com/tinggal-meninggal) [<sub>carrd</sub>](https://tinggalmeninggal.carrd.co)
+ [新](https://stanleyparable.atabook.org/) [<sub>follow me</sub>](https://github.com/tinggal-meninggal) [<sub>carrd</sub>](https://tinggalmeninggal.carrd.co) [<sub>fluffle</sub>](https://fluffle.cc/crucible.on.a.sunday)
  </div> 
 
  <div align="center"><details>
